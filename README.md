@@ -1,1 +1,2 @@
-Joshua O'Leary
+Project Team Members:
+Alice Gurkova
